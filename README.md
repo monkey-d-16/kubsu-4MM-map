@@ -1,2 +1,2 @@
-# kubsu-4MM-map
-***EEE***
+# kubsu-4MM-2024-map
+
